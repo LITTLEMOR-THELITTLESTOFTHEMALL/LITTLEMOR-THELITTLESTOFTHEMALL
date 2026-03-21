@@ -1,5 +1,5 @@
-## Hallo!! 
-Nothing THAT interesting to see here, yet! 
+$${\color{orange} Hallo!}$$ 
+$${\color{red} （＾ω＾） }$$
 
 
 ![image](https://github.com/user-attachments/assets/8df80280-b663-4dea-9ec8-ac28a84c8be6)
