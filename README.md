@@ -1,4 +1,4 @@
-$${\color{orange} Hallo!}$$ 
+$${\color{yellow} Hallo!}$$ 
 $${\color{red} （＾ω＾） }$$
 
 
