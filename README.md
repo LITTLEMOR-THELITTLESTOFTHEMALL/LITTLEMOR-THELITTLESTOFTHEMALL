@@ -1,4 +1,5 @@
 
+
 $${\color{yellow} Hallo!}$$ 
 $${\color{red} （＾ω＾） }$$
 
@@ -14,3 +15,5 @@ $${\color{red} （＾ω＾） }$$
 ![Image](https://github.com/user-attachments/assets/7b5401f5-4580-4581-b3a7-027db7c5a34c)
 
 $${\color{green}-- "THAT \space DOCTOR \space AIN'T \space REAL, \space GET \space EM!" }$$
+
+<img width="1000" height="1000" alt="390 sin título_20260719200852" src="https://github.com/user-attachments/assets/7b3b98ec-0f42-4e1c-809f-74ce4ca37305" />
