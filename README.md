@@ -1,3 +1,9 @@
+
+
+
+
+
+
 $${\color{yellow} Hallo!}$$ 
 $${\color{red} （＾ω＾） }$$
 
@@ -6,7 +12,9 @@ $${\color{red} （＾ω＾） }$$
 
  <code style="color: blue;" > I really like having friends, as said before, im a sociable person!</code>
 
+<code style="blue: blue;" > most of my socials include the name 'Little_mor' in em...so you know how and where to find me..heh
 
+<code style="red: red;" > Also, feel free to talk or interact with me, despite how..quiet i can be, i really like people interacting with me ^_^ 
  
 $${\color{blue} Cowabunga !}$$
 $${\color{aquamarine} Cowabunga!}$$
@@ -14,3 +22,7 @@ $${\color{cyan} Cowabunga !}$$
 
 
 ![Image](https://github.com/user-attachments/assets/7b5401f5-4580-4581-b3a7-027db7c5a34c)
+
+$${\color{green} -- " THAT DOCTOR AIN'T REAL, GET EM !! " }$$
+
+https://github.com/user-attachments/assets/5cdc3554-0426-44d3-a5b4-a37e1db5cf9c
