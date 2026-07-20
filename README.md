@@ -12,3 +12,5 @@ $${\color{red} （＾ω＾） }$$
 🍀 -- " Also,feel free to talk or interact with me,despite how..quiet i can be,i really like people interacting with me ^o^ "
 
 ![Image](https://github.com/user-attachments/assets/7b5401f5-4580-4581-b3a7-027db7c5a34c)
+
+$${\color{green}-- "THAT \space DOCTOR \space AIN'T \space REAL, \space GET \space EM!" }$$
