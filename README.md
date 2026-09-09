@@ -1,5 +1,4 @@
 
-
 $${\color{yellow} Hallo!}$$ 
 $${\color{red} （＾ω＾） }$$
 
@@ -18,4 +17,4 @@ $${\color{red} （＾ω＾） }$$
 
 $${\color{green}-- "THAT \space DOCTOR \space AIN'T \space REAL, \space GET \space EM!" }$$
 
-<img width="1000" height="1000" alt="390 sin título_20260719200852" src="https://github.com/user-attachments/assets/7b3b98ec-0f42-4e1c-809f-74ce4ca37305" />
+<img width="1000" height="1000" alt="390 flankerndoctor_20260719200852" src="https://github.com/user-attachments/assets/7b3b98ec-0f42-4e1c-809f-74ce4ca37305" />
