@@ -8,11 +8,11 @@ $${\color{red} （＾ω＾） }$$
 
 🫐 -- " I really like having friends, as said before, im a sociable person ! "
 
-💥 -- " Most of my socials include the name 'Little_mor' in em...so you know how and where to find me..heh "
+💥 -- " Most of my socials include the name 'Little_mor' in em...so you know how and where to find me..it’s all on my GUNS.LOL !! "
 
 🍀 -- " Also,feel free to talk or interact with me,despite how..quiet i can be,i really like people interacting with me, im really friendly so don’t feel scared to interact or tell me something! (this includes whispers) ^o^ "
 
-❄️ —- " Feel free to send me stuff to my straw as well! I’ll make an ata soon aswell… "
+❄️ —- " Feel free to send me stuff to my straw AND ata, tehee !! "
 
 ![Image](https://github.com/user-attachments/assets/7b5401f5-4580-4581-b3a7-027db7c5a34c)
 
